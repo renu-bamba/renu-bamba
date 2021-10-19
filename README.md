@@ -19,7 +19,7 @@ Here are some ideas to get you started:
 Here are some of the must read books
 
 1) How Not To be wrong.
-2)
+2) The art of the good life
 3)
 4)
 5)
